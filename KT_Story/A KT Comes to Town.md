@@ -21,10 +21,16 @@ Then she closes her eyes and tilts her head back as she takes a long drag. Holdi
 
 Katelynn opens her eyes and tucking the lighter back into the pack hands them back to the owner. "Thanks. Any idea where I can get a good cup of coffee?"
 
-"No, problem. That depends."
+"No, problem there. And that depends."
 
 "On what?"
 
 "On how long you keep ground coffee."
 
-"I only grind the amount I need."
+"I only grind the amount I need before I brew it."
+
+"Get thee good lady to the *Hot Crossed Bun*."
+
+"That sounds more like a bakery than a coffee place. Are you sure yer steering me straight?"
+
+"Nothing truer
